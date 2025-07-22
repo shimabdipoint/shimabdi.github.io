@@ -1,1 +1,1 @@
-# shimabdi.github.io
+# shimabdipoint
